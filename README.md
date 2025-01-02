@@ -1,3 +1,3 @@
-https://www.nazmulsupershop.com
+https-www.nazmulsupershop.com
 www.nazmulsupershop.com
 www.nazmulsupershop.com
